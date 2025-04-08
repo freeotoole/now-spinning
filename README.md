@@ -1,4 +1,4 @@
-# MEtal recomendations
+# Metal recomendations
 
 ## List of tunes I'm digging
 
